@@ -1,2 +1,2 @@
 # myPersonalImageGallary
-want get access all the images what i have maked memories at my collage
+want get access all the images what i have at memories at my collage
